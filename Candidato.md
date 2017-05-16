@@ -1,9 +1,9 @@
-Nome Completo: Luiz Boça
+Nome Completo: THIAGO SANTOS
 
-E-mail: luiz.boca@clubedosminigameiros.com.br
+E-mail: tigurio@gmail.com
 
-Linkedin: http://linkedin.com/luiz.boca
+Linkedin: http://br.linkedin.com/in/tigurio
 
-Telefone: (44) 44444-4444 
+Telefone: (71) 99200-1869 
 
-Portfólio (Opicional): clubedosminigameiros.com.br/portfolio
+Portfólio (Opicional): tigurio.comm.br / tigurio.github.io
